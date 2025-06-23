@@ -15,7 +15,7 @@
 
 点击访问：<a href="https://cg90-22.pages.dev/">Twitter中文版</a>
 
-点击访问：<a href="https://dy7-08.pages.dev/">91抖音</a>
+点击访问：<a href="https://hl375.pages.dev/">黑料社区</a>
 
 点击访问：<a href="https://hl453.pages.dev/">今日黑料 独家爆料</a>
 
